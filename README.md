@@ -1,3 +1,6 @@
 # aprendogidhub
 ## empiezo
-aprendiendo github esto es nuevo aprendiendo  genial
+aprendiendo github esto es nuevo aprendiendo  GIDHUB
+ERIICICIC
+APRENDIENDO
+
